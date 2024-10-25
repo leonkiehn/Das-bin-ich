@@ -14,6 +14,7 @@ Zunächst möchte ich Dir einige Informationen über mich geben:
 | 2023 (end)   | Beendigung vom IT-Leiter |
 | 2024 (end)   | Ausbildung erfolgreich abgeschlossen :) |
 | 2024 (start) | Einstieg im Sicherheitsdienst, tätig in der NSL |
+| 2024 (start) | Neben Selbständig gemacht in der Brache EDV |
 | 2024 ( - )   | Nun bist Du hier! |
 
 ### In Kontakt kommen:
