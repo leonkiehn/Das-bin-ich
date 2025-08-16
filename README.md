@@ -7,7 +7,7 @@ Zunächst möchte ich Dir einige Informationen über mich geben:
 | Dateum | Arbeit |
 | - | - |
 | 2017 (start) | Anfänge von einem Hosting Unternehmen |
-| 2018 ( - )   | Grundung eines Hosting Unternehmens |
+| 2018 (2020)  | Grundung eines Hosting Unternehmens |
 | 2019 (start) | Ausbildung, Elektroniker für Energie- und Gebäudetechnik |
 | 2020 (end)   | Hosting Unternehmen Geschlossen wegen Zeitmangel |
 | 2020 (start) | Neben Beruflich als IT-Leiter |
@@ -15,7 +15,8 @@ Zunächst möchte ich Dir einige Informationen über mich geben:
 | 2024 (end)   | Ausbildung erfolgreich abgeschlossen :) |
 | 2024 (start) | Einstieg im Sicherheitsdienst, tätig in der NSL |
 | 2024 (start) | Neben Selbständig gemacht in der Brache EDV |
-| 2024 ( - )   | Nun bist Du hier! |
+| 2025 ( - )   | Gründung von AlarmDesk |
+| 2025 ( - )   | Gründung von Kiehn Systeme |
 
 ### In Kontakt kommen:
 * Discord: DerLeeoon#3634
